@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @S-lices
+- 👀 I’m interested in Jojos Bizzare adventure
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on other projects
+- 📫 How to reach me: amo.gus.was.taken.by.someone.else@gmail.com
+- ⚡ Fun fact: I look forward to rotting
